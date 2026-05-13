@@ -1,4 +1,4 @@
-#  
+#  be a lucky block Scripts secure is the best be a lucky block Script, featuring unlimited stamina and auto-upgrade. Safe and powerful for all your
 
 
 
